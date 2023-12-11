@@ -1,0 +1,1 @@
+# masatomofujiwara.github.io
